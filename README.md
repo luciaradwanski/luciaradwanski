@@ -28,6 +28,6 @@ También tengo conocimientos sobre Ilustrator, Photoshop, After Effects, Premier
 
 **No dudes en contactarme!!!**
 
-Juntos podemos realizar un gran proyecto que cambie la vida de las personas.
+Juntos podemos realizar un gran proyecto!
 
 
