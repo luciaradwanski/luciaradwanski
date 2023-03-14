@@ -30,4 +30,5 @@ También tengo conocimientos sobre Ilustrator, Photoshop, After Effects, Premier
 
 Juntos podemos realizar un gran proyecto!
 
+luciadanielaradwanski@gmail.com
 
