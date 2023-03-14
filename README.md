@@ -1,9 +1,8 @@
-### Hi there 👋
-Hola! Mi nombre es Lucia Rdwanski
+### Hola! Mi nombre es Lucia Radwanski 👋
 
 😄 ¿Quién soy?
 
-Soy una programadora Full Stack orientada tanto en Back end como en Front end, mi fuerte es la creación de material visual.
+Soy Full Stack Developer, orientada tanto en Back end como en Front end, mi fuerte es la creación de material visual.
 
 ⚡ ¿Que hago?
 
