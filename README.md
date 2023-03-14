@@ -30,5 +30,12 @@ También tengo conocimientos sobre Ilustrator, Photoshop, After Effects, Premier
 
 Juntos podemos realizar un gran proyecto!
 
-luciadanielaradwanski@gmail.com
+Puedes encontrarme en 🔍:
+
+[Linkeding](https://www.linkedin.com/in/lradw/)
+
+O enviarme un mensaje a mi correo:
+
+[Email](luciadanielaradwanski@gmail.com)
+
 
