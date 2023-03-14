@@ -6,11 +6,11 @@ Soy Full Stack Developer, orientada tanto en Back end como en Front end, mi fuer
 
 ⚡ ¿Que hago?
 
-Actualmente me dedico a realizar proyectos que me permiten avanzar en mi formación como programadora. Me fascina poder encontrar la solución a distintos problemas con código.
+Actualmente me dedico a realizar proyectos que me permiten avanzar en mi formación como programadora. Me fascina poder mostrar lo que puedo hacer.
 
 ✨ ¿A dónde me dirijo? 
 
-Mi objetivo principal es impactar en el mundo con código! En mostrar con código lo que puedo hacer, los conflictos que puedo resolver y el resultado final de cada App.
+Mi objetivo principal es impactar en el mundo con código! 
 Me apasiona ver lo que logre después de ver cada proyecto terminado y con futuro.
 
 🚀 ¿Qué tecnologías uso?
